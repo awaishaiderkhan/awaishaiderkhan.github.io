@@ -1,1 +1,1 @@
-# awaishaiderkhan.github.io/my-portfolio
+# awaishaiderkhan.github.io/portfolio
